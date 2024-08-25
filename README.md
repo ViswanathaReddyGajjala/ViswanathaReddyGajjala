@@ -3,7 +3,7 @@
 
 🚧 Work in Progress!
 
-Webpage: https://viswanathareddygajjala.github.io/webpage/
+Webpage: https://viswanathareddygajjala.github.io/
 
 Connect with me on [LinkedIn](https://www.linkedin.com/in/viswa98/) 
 
